@@ -1,6 +1,11 @@
 °•Can you give me some avocados please💔
-•°CALL ME YAWA/ELAINE 
+
+•°CALL ME YAWA/ELAINE
+
 °•SHE/HER⚰️🕊️
+
 •°AND I AM VERY PURE 👀
+
 °•PLEASE INT I NEED FRIENDS
+
 •°ONE THING DNC ANY OF MY SKINS JUST PSLSK
